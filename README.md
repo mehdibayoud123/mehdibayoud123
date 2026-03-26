@@ -22,4 +22,4 @@ Check out my project, [Aurea Sentinel](https://github.com/mehdibayoud123/Aurea_S
 ## Contact Information
 Feel free to reach out to me for collaboration or inquiries!  
 
-- Email: mehdibayoud123@example.com
+- Email: mohamedmehdibayoud@gmail.com
